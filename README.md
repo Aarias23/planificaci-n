@@ -1,1 +1,1 @@
-# planificaci-n
+# planificación
